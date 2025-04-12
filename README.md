@@ -13,6 +13,4 @@ https://youtu.be/lm50i_r-pd8?si=O2jvyUjbvezyuzvw
 
 
 
-
-
-https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDRhNmQ2OGV1MGtqZG1jZWU0djRmOWx0dnR3eHBwa3RyZGNrc2FhdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MuztdWJQ4PR7i/giphy.gif
+![meme de cachorrinho] (https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDRhNmQ2OGV1MGtqZG1jZWU0djRmOWx0dnR3eHBwa3RyZGNrc2FhdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MuztdWJQ4PR7i/giphy.gif)
